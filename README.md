@@ -1,4 +1,4 @@
-**Projeto: Análise Comparativa entre Wix e Shopify**
+**Projeto: Análise Comparativa entre Wix e Shopify** 🖥️🔗
 
 ---
 
